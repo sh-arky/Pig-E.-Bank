@@ -1,2 +1,2 @@
-![image of a Piggy Bank](https://www.google.com/url?sa=i&url=https%3A%2F%2Fstock.adobe.com%2Fsearch%3Fk%3Dpiggy%2Bbank%2Blogo&psig=AOvVaw3243y1cbjOpEA4614lE9f3&ust=1721067186935000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCPiU1YaRp4cDFQAAAAAdAAAAABAE)
+![image of a Piggy Bank](https://t3.ftcdn.net/jpg/04/15/64/90/360_F_415649040_PyPJES2r2BElWRX4FlDU9H42kEmMGPtW.jpg)
 # Pig-E.-Bank
